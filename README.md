@@ -10,4 +10,4 @@ meu nome é pyetro dehon goll
 
 - pyetro.goll@escola.pr.gov.br
 
-  (https://tenor.com/pt-BR/search/inside-out-2-gifs)
+  (https://media1.tenor.com/m/4uKKrj5fSPAAAAAC/hello-anxiety.gif)
