@@ -12,5 +12,5 @@ meu nome é pyetro dehon goll
 
 
 
-![octo](octocat-1722602129391.png)
+
 
